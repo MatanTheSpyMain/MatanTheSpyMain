@@ -6,3 +6,4 @@ For example: No furry stuff, No NSFW (With exceptions), etc. You get the idea.
 
 Artwork will be put here in the near future... <3
 
+<img align="right" alt="All hail Rin" src="https://i.kym-cdn.com/photos/images/original/002/012/243/148.gifv" height=440 width=280>
